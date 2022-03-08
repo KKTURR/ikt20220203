@@ -1,5 +1,5 @@
 # ikt20220203
 1st commit
-#sziauram
+#háj szőr
 #hi
 #máj ném iz kámán
